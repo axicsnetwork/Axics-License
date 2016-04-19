@@ -10,7 +10,7 @@
 -All Data and Information are clear.
 -Any harms To Yourself Are Not Our Faults.
 -We will not responsible to any faultness to ur own.
--Every Terms Nad Conditions must followed if Not u already broke the law's code-729 statement which will allowed us to fine u.
+-Every Terms and Conditions must followed if Not u already broke the law's code-729 statement which will allowed us to fine u.
 ------
 #Conditions
 ------
